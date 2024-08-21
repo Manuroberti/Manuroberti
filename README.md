@@ -8,3 +8,6 @@ Meu nome é Manuela Roberti
 *Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos.
 
 ![](https://media.tenor.com/DMwCFw-gp9QAAAAi/disc-banner.gif)
+
+Você pode entrar em contato comigo
+00001132128195sp@al.educacao.sp.gov.br
